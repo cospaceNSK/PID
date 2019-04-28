@@ -28,7 +28,7 @@ Nobody is a secret character.
 Foreigner - can attack with shurikens and bolts from your Crossbow Secret.
 
 
-Shaman - with the help of his Pasha and tank with mana, able much, how about to call the fire archon?
+Shaman - with the help of his staff and tank with mana, able much, how about to call the fire archon?
 
 
 A traitor - Charred,(about them later, in the tab ENT),which moved on good side, Wolverine in world PID.
