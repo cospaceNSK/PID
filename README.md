@@ -37,7 +37,7 @@ A traitor - Charred,(about them later, in the tab ENT),which moved on good side,
 Sensei - the good old teacher, but, can he conceals get back a little more, than You thinking...
 
 
-Nichtozhestvo - I think the title is clear, but he nudered you ass. Or not?..
+Nobody - I think the title is clear, but he nudered you ass. Or not?..
 
 Lore
 
