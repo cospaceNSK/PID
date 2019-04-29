@@ -52,7 +52,7 @@ At the moment, not very much is ready.
 
   Beans Power (Gives a short buff to damage).
 
- - Candy Mana - mana protonnye, they will gladly give you the taste of mint and restores mana.
+ - Candy Mana - mana impregnated, they will gladly give you the taste of mint and restores mana.
 
  - Mans candy bag.
 
