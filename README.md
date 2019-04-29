@@ -90,8 +90,8 @@ We support a growing list of platforms across the desktop, mobile (In future).
 ![](https://i.imgur.com/NgJfXN2.png)
 ![](https://i.imgur.com/G6RY4xt.png)
 ![](https://i.imgur.com/yBHsGsh.png)
-
-
+![](https://imgur.com/pj38Iz3.png)
+![](https://imgur.com/csDhYqF.png)
 
 
 
